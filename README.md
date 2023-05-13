@@ -6,7 +6,7 @@
 - 
       Email: 
 -
-             im_shami@icloud.com.
+             im_shami@icloud.com
 -
        Fiverr:
 -
